@@ -1,0 +1,2 @@
+# -beautysmile.by
+!beautysmile.by
